@@ -1,4 +1,4 @@
-[Voltage](https://avatars.githubusercontent.com/u/95542341?s=400&u=13e6e29bcaafabad3dd259a40090a17753c13c46&v=4)
+![Voltage](https://avatars.githubusercontent.com/u/95542341?s=400&u=13e6e29bcaafabad3dd259a40090a17753c13c46&v=4)
 
 ## Who we are
 
